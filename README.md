@@ -1,4 +1,4 @@
 # l.gao
 
 Hey
-Life goes on man.
+Life doesn't go on man.
